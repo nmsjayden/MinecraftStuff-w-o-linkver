@@ -1,13 +1,13 @@
 Minecraft Crash Clients:
 
 
-https://blackspigot.com/downloads/blazeclient-cracked-and-deobfed.19988/         
+https://blackspigot.com/downloads/blazeclient-cracked-and-deobfed.19988/         BlazeClint
 
-https://blackspigot.com/downloads/metaclient-installer-client-src-by-nzxter.15227/
+https://blackspigot.com/downloads/metaclient-installer-client-src-by-nzxter.15227/   Metaclient
 
-https://blackspigot.com/downloads/sweetclient-fixmem-blackcrack-avarionteam.20813/
+https://blackspigot.com/downloads/sweetclient-fixmem-blackcrack-avarionteam.20813/   SweetClient
 
-https://anonfiles.com/r1H0A9Gcx5/Heaven_1.3_zip
+https://anonfiles.com/r1H0A9Gcx5/Heaven_1.3_zip    HeavenClient
 
 https://workupload.com/file/GCuMagETf6Q
 
