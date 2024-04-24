@@ -1,35 +1,35 @@
-Minecraft Crash Clients:
+Minecraft Crash Clients:                                                                                                 The Client Names:
 
 
-https://blackspigot.com/downloads/blazeclient-cracked-and-deobfed.19988/         BlazeClint
+https://blackspigot.com/downloads/blazeclient-cracked-and-deobfed.19988/                                                    BlazeClint
 
-https://blackspigot.com/downloads/metaclient-installer-client-src-by-nzxter.15227/   Metaclient
+https://blackspigot.com/downloads/metaclient-installer-client-src-by-nzxter.15227/                                          Metaclient
 
-https://blackspigot.com/downloads/sweetclient-fixmem-blackcrack-avarionteam.20813/   SweetClient
+https://blackspigot.com/downloads/sweetclient-fixmem-blackcrack-avarionteam.20813/                                          SweetClient
 
-https://anonfiles.com/r1H0A9Gcx5/Heaven_1.3_zip    HeavenClient
+https://anonfiles.com/r1H0A9Gcx5/Heaven_1.3_zip                                                                             HeavenClient
 
-https://workupload.com/file/GCuMagETf6Q
+https://workupload.com/file/GCuMagETf6Q                                                                                     Ayakashi + DEOBF + SRC by NZXTER
 
-https://workupload.com/file/vAXqA5yQ5rT
+https://workupload.com/file/vAXqA5yQ5rT                                                                                     Slayer + SRC by NZXTER
 
-https://workupload.com/file/ZqB5R7Trck3
+https://workupload.com/file/ZqB5R7Trck3                                                                                     GasClient 8.5 by GrafVillainous
 
-https://workupload.com/file/7HAN5dqdWzN
+https://workupload.com/file/7HAN5dqdWzN                                                                                     Invalid Premium cleaned + SRC by GrafVillainous
 
-https://workupload.com/file/4qmCHaM36bd
+https://workupload.com/file/4qmCHaM36bd                                                                                     JulianCode by GrafVillainous
 
-https://workupload.com/file/pEybttCZEWc
+https://workupload.com/file/pEybttCZEWc                                                                                     MSClient
 
-https://workupload.com/file/sWtSJE5LnFM
+https://workupload.com/file/sWtSJE5LnFM                                                                                     NoRisk Client + SRC by GrafVillainous
 
-https://workupload.com/file/azSRJwPTTPq
+https://workupload.com/file/azSRJwPTTPq                                                                                     Creeper deobf by GrafVillainous
 
-https://workupload.com/file/C58Es2QvkEq
+https://workupload.com/file/C58Es2QvkEq                                                                                     BlockClient b24 by GrafVillainous
 
-https://workupload.com/file/cNwGPRfG2zE
+https://workupload.com/file/cNwGPRfG2zE                                                                                     AstraClient by GrafVillainous
 
-https://uploadify.net/99e3ca39aa7401f8/(1.8.x)_Intel.zip
+<s>https://uploadify.net/99e3ca39aa7401f8/(1.8.x)_Intel.zip</s>                                                             (File Removed)
 
 https://ufile.io/na1y4ho3
 
