@@ -1,54 +1,53 @@
 Minecraft Crash Clients:
 
 
-https://direct-link.net/113826/blazeclient1
+https://blackspigot.com/downloads/blazeclient-cracked-and-deobfed.19988/         
 
-https://link-center.net/113826/metaclient
+https://blackspigot.com/downloads/metaclient-installer-client-src-by-nzxter.15227/
 
-https://link-center.net/113826/sweetclient1
+https://blackspigot.com/downloads/sweetclient-fixmem-blackcrack-avarionteam.20813/
 
-https://link-target.net/113826/heaven-client
+https://anonfiles.com/r1H0A9Gcx5/Heaven_1.3_zip
 
-https://direct-link.net/113826/ayakashi-download
+https://workupload.com/file/GCuMagETf6Q
 
-https://direct-link.net/113826/slayer-src
+https://workupload.com/file/vAXqA5yQ5rT
 
-https://direct-link.net/113826/gasclient-85
+https://workupload.com/file/ZqB5R7Trck3
 
-https://link-center.net/113826/invalid-premium-cleaned
+https://workupload.com/file/7HAN5dqdWzN
 
-https://link-hub.net/113826/voltage-client
+https://workupload.com/file/4qmCHaM36bd
 
-https://link-center.net/113826/msclient
+https://workupload.com/file/pEybttCZEWc
 
-https://direct-link.net/113826/norisk-client
+https://workupload.com/file/sWtSJE5LnFM
 
-https://direct-link.net/113826/creeper-client-deobf
+https://workupload.com/file/azSRJwPTTPq
 
-https://direct-link.net/113826/blockclient-b24
+https://workupload.com/file/C58Es2QvkEq
 
-https://link-hub.net/113826/astraclient-2022-01-15
+https://workupload.com/file/cNwGPRfG2zE
 
-https://direct-link.net/113826/18x-intel-src
+https://uploadify.net/99e3ca39aa7401f8/(1.8.x)_Intel.zip
 
-https://link-center.net/113826/orbit-v43-cracked
+https://ufile.io/na1y4ho3
 
-https://direct-link.net/113826/hanf-client-leaked
+https://www.mediafire.com/file/ozuydrd0khcgegd/HanfClient.zip/file
 
-https://link-target.net/113826/StormCrashClient
+https://cdn.discordapp.com/attachments/845764345875267585/860648379541225502/Storm.zip
 
-https://direct-link.net/113826/SweetClient
+https://www.mediafire.com/file/s9hvu3raldumip4/SweetClient.zip/file
 
-https://direct-link.net/113826/BlazeClientDobf
+https://www.mediafire.com/file/62hqby06ibhi15b/BlazeClient-deobf.jar/file
 
-https://direct-link.net/113826/AphonicCrasClient
+https://www.mediafire.com/file/kh80z73v61v091m/Aphonic.zip/file
 
-https://direct-link.net/113826/BetterCraftCrashClient
+https://www.mediafire.com/file/7kqi3r4394t2ut7/BetterCraft.zip/file
 
-https://direct-link.net/113826/ByteCrashClient
+https://www.mediafire.com/file/bgzn3nq3qyn3j9u/Byte.zip/file
 
-https://direct-link.net/113826/VoxelClient
-
+https://www.mediafire.com/file/cvd158n7unnb1nh/VoxelClient.zip/file
 
 Minecraft Server Crashers:
 
