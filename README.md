@@ -31,23 +31,23 @@ https://workupload.com/file/cNwGPRfG2zE                                         
 
 <s>https://uploadify.net/99e3ca39aa7401f8/(1.8.x)_Intel.zip</s>                                                             (File Removed)
 
-https://ufile.io/na1y4ho3
+<s>https://ufile.io/na1y4ho3</s>                                                                                            (File Removed)
 
-https://www.mediafire.com/file/ozuydrd0khcgegd/HanfClient.zip/file
+https://www.mediafire.com/file/ozuydrd0khcgegd/HanfClient.zip/file                                                          HanfClient
 
-https://cdn.discordapp.com/attachments/845764345875267585/860648379541225502/Storm.zip
+<s>https://cdn.discordapp.com/attachments/845764345875267585/860648379541225502/Storm.zip</s>                               (File Removed)
 
-https://www.mediafire.com/file/s9hvu3raldumip4/SweetClient.zip/file
+https://www.mediafire.com/file/s9hvu3raldumip4/SweetClient.zip/file                                                         SweetClient
 
-https://www.mediafire.com/file/62hqby06ibhi15b/BlazeClient-deobf.jar/file
+https://www.mediafire.com/file/62hqby06ibhi15b/BlazeClient-deobf.jar/file                                                   BlazeClient-deobf
 
-https://www.mediafire.com/file/kh80z73v61v091m/Aphonic.zip/file
+https://www.mediafire.com/file/kh80z73v61v091m/Aphonic.zip/file                                                             Aphonic
 
-https://www.mediafire.com/file/7kqi3r4394t2ut7/BetterCraft.zip/file
+https://www.mediafire.com/file/7kqi3r4394t2ut7/BetterCraft.zip/file                                                         BetterCraft
 
-https://www.mediafire.com/file/bgzn3nq3qyn3j9u/Byte.zip/file
+https://www.mediafire.com/file/bgzn3nq3qyn3j9u/Byte.zip/file                                                                Byte
 
-https://www.mediafire.com/file/cvd158n7unnb1nh/VoxelClient.zip/file
+https://www.mediafire.com/file/cvd158n7unnb1nh/VoxelClient.zip/file                                                         VoxelClient
 
 Minecraft Server Crashers:
 
